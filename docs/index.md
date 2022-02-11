@@ -1,4 +1,3 @@
-<!DOCTYPE html>
 <html lang="pt-br">
 <head>
     <meta charset="UTF-8">
@@ -19,6 +18,21 @@
     <br> Durante a guerra, foi produzido um poderoso vídeo capaz de acabar com tudo e todos.
     <br>
     <video align="left" alt="carros brabos" height="265" width="600" src="https://cdn.discordapp.com/attachments/940798829987516506/941415129571012698/carros2_-_Copia.webm" controls></video>
+ 
+<p>Stylo, após descobrir sobre a existência de um vídeo tão poderoso, foi atrás dele para parar Bill Gates.
+Mal sabe o mal que lhe aguarda..
+Stylo após chegar na sala de reuniões da sony, ele procura pelo chefe, aquele que tem poder suficiente para encontrar o criador do vídeo através das partidas de clash royale, se comunicando por emojis de choro, forçando o oponente a se sentir forçado a encontra-lo para esmurra-lo. Esse seria o plano perfeito de Stylo, a única forma de derrotar Bill Gates é colocando outras pessoas contra eles até não restar nenhuma. Mas ele não contava com o dinheiro e fama de Bill Gates..</p>
 
-</body>
-</html>
+<p>Bill Gates assim que descobriu o plano de Stylo, tomou a decisão de oferecer drogas a todos, mas não era drogas comuns. Elas possuiam certo nível de perigo, uma vez que consumida, o efeito jamais poderá ser revertido. Bill Gates transformou todos os usuários de sua droga em ratos maconheiros</p>
+
+<img align="center" alt="rato maconheiro" src="https://cdn.discordapp.com/attachments/489234783734595604/941353831348981820/EAVhK7nW4AAnIl2.png">
+<p>Bill Gates tomou essa decisão pois, mesmo que Stylo coloque todos contra ele, Stylo jamais conseguirá fazer um rato lhe contar onde conseguir o vídeo poderoso.</p>
+
+<p>Stylo quando descobriu o que Bill Gates fez, correu para a agência de drogas e encomendou um par de drogas e armas para desenvolver um novo exército.
+Stylo sabia que nem todos tinham coragem de tirar a vida de alguém, mas, e se essa pessoa virasse um galo de briga? Ela teria coragem de tirar a vida de alguém?
+E assim foi feito. Stylo transformou todos os seus aliados em galos de briga, exceto sua legião de bolsonaros.</p>
+
+<img align="left" alt="galo brabo" height="560" width="315" src="https://cdn.discordapp.com/attachments/489234783734595604/941353770179231784/DwuVjvkX4AIc9IJ.png">
+<img align="center" alt"outro galo" src="https://cdn.discordapp.com/attachments/558392482447228928/941669810264227920/unknown.png">
+
+<p>Stylo tinha plena certeza de que seus galos eram capazes de destruir qualquer rato maconheiro ou qualquer trabalhador da microsoft, pois eles estavam armados e carregados até o talo.</p>
