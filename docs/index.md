@@ -26,7 +26,7 @@ Stylo após chegar na sala de reuniões da sony, ele procura pelo chefe, aquele 
 <p>Bill Gates assim que descobriu o plano de Stylo, tomou a decisão de oferecer drogas a todos, mas não era drogas comuns. Elas possuiam certo nível de perigo, uma vez que consumida, o efeito jamais poderá ser revertido. Bill Gates transformou todos os usuários de sua droga em ratos maconheiros</p>
 
 <img align="center" alt="rato maconheiro" src="https://cdn.discordapp.com/attachments/489234783734595604/941353831348981820/EAVhK7nW4AAnIl2.png">
-<p>Bill Gates tomou essa decisão pois, mesmo que Stylo coloque todos contra ele, Stylo jamais conseguirá fazer um rato lhe contar onde conseguir o vídeo poderoso.</p>
+<p>Bill Gates tomou essa decisão pois, mesmo que Stylo coloque todos contra ele, Stylo jamais conseguirá fazer um rato lhe contar onde conseguir o poderoso vídeo.</p>
 
 <p>Stylo quando descobriu o que Bill Gates fez, correu para a agência de drogas e encomendou um par de drogas e armas para desenvolver um novo exército.
 Stylo sabia que nem todos tinham coragem de tirar a vida de alguém, mas, e se essa pessoa virasse um galo de briga? Ela teria coragem de tirar a vida de alguém?
