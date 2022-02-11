@@ -2,7 +2,7 @@
 Parte 2 da grande luta entre stylo liderando bolsonaros vs bill gates
 
 <h2>Parte 1:
-
+(Exatamente igual a parte 2, só que incompleto)
 https://github.com/patrickauau/Stylo-vs-Bill-Gates</h2>
 <hr><h2> Parte 2:
 
