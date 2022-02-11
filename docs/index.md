@@ -12,6 +12,7 @@
         Enquanto bolsomitos seguram a batalha para Stylo. 
         <hr>Stylo reune poder para explicar como ele pode fazer vários e vários parágrafos sem precisar criar vários "&lt;p&gt;" e "&lt;/p&gt;" apenas utilizando o código "&lt;br&gt;"
         <br> Stylo após muito esforço, conseguiu transformar seu nome em uma marca registrada e agora é conhecido por Stylo&reg; e agora ele está em busca de conseguir o &copy; e o &trade; para executar seu plano de processar a microsoft &#9728; 😀
+<br>
     <img align="center" alt="IMAGENS DE GUERRA" src="https://cdn.discordapp.com/attachments/940798829987516506/941404201915908116/unknown.png"/>
     <br>(IMAGENS TIRADAS DURANTE A GUERRA)
     <br>
