@@ -33,6 +33,6 @@ Stylo sabia que nem todos tinham coragem de tirar a vida de alguém, mas, e se e
 E assim foi feito. Stylo transformou todos os seus aliados em galos de briga, exceto sua legião de bolsonaros.</p>
 
 <img align="left" alt="galo brabo" height="560" width="400" src="https://cdn.discordapp.com/attachments/489234783734595604/941353770179231784/DwuVjvkX4AIc9IJ.png">
-<img align="left" alt="outro galo" height="560" width="400" src="https://cdn.discordapp.com/attachments/558392482447228928/941669810264227920/unknown.png">
+<img align="center" alt="outro galo" height="560" width="400" src="https://cdn.discordapp.com/attachments/558392482447228928/941669810264227920/unknown.png">
 
 <p>Stylo tinha plena certeza de que seus galos eram capazes de destruir qualquer rato maconheiro ou qualquer trabalhador da microsoft, pois eles estavam armados e carregados até o talo.</p>
