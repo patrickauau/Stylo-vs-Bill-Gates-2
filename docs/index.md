@@ -71,6 +71,6 @@ Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicion
 Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na obrigação de invadir alguma conexão direta com a tv para pedir ajuda, e então ele desenvolveu um vírus perigoso, capaz de prejudicar a saúde de quaquer um. Esse vírus se chama StyloRk YT channel
 <br>
 <br>Pessoas se encontram em estado de ódio em relação a Stylo, e começam a caçar ele...
-<audio align="left" alt="tananananana" src="https://cdn.discordapp.com/attachments/940798829987516506/941415129571012698/carros2_-_Copia.webm" autoplay loop></audio>
+<audio align="left" alt="tananananana" src="https://cdn.discordapp.com/attachments/940798829987516506/941415129571012698/carros2_-_Copia.webm"></audio>
 <br>
 O plano de Stylo estava fluindo corretamente, mas Bill Gates percebeu o perigo que corria se deixasse o restante do povo que não se tornou um rato maconheiro chegasse até Stylo e fosse rendido por um dos galos armados, então ele teve a brilhante ideia desenvolver a microsoft rewards, onde você poderia participar de sorteios apenas fazendo missões simples e com vpn para burlar o sistema propositalmente, além de robux de graça, gerando um grande movimento.   
