@@ -58,12 +58,12 @@ Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicion
 <br> Stylo convence CR7 a ir, mas precisa de autorização do Seu Madruga. Seu Madruga por sua vez, não aceitaria tal propósta, mas Stylo consegue negociar os 14 meses de aluguel pagos com Seu Barriga caso ele permita a saída do CR7.
 
 <br> Seu Madruga aceita a propósta, mas depois de tanto dialogo, Stylo estava sem tempo. A derrota era sua consequência, Bill Gates ganhará se Stylo não chegar a tempo e procurar pelo vídeo poderoso. Seu Madruga após uma séria analise da situação, mostrou 0.000000000000005% de seu poder, e se transformou em um carro com velocidade absurda para Stylo alcançar a sony a tempo.
-
-<img align="center" alt="kachuga" src="https://cdn.discordapp.com/attachments/940798829987516506/941884499166380123/2Q.png">
+<br>
+<img align="center" alt="kachuga" height="200" width="900" src="https://cdn.discordapp.com/attachments/940798829987516506/941884499166380123/2Q.png">
     <br> <i>(Seu Madruga, primeira forma)</i>
 <br>
 <br> CR7 chega a tempo e começa a instalar clash royale, todos haviam esperança de uma chance de vitória. Mas esqueceram que CR7 era mestre jogando bola, não clash royale. Após 3 partidas feitas em um torneio de elixir infinito, CR7 perde.
 
-<video align="center" alt="deu ruim" height="300" width="900" src="https://cdn.discordapp.com/attachments/818311885367410698/941886121313464360/Eita_KKKJ_.__.__.__--------___meme__memebrasil__offensivememes__memesbrasil__shitposters__shitpost__memealeatorio__ironia__shitposting__shitpostbrasil__mashupmeme__shitpostbrasil__shitpostde.mp4" controls></video>
+<video align="center" alt="deu ruim" src="https://cdn.discordapp.com/attachments/818311885367410698/941886121313464360/Eita_KKKJ_.__.__.__--------___meme__memebrasil__offensivememes__memesbrasil__shitposters__shitpost__memealeatorio__ironia__shitposting__shitpostbrasil__mashupmeme__shitpostbrasil__shitpostde.mp4" controls></video>
 
     <br> <i>(Sou lindo, aceitas um copo de ???)</i>
