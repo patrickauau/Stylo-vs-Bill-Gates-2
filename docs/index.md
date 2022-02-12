@@ -71,3 +71,7 @@ Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicion
 Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na obrigação de invadir alguma conexão direta com a tv para pedir ajuda, e então ele desenvolveu um vírus perigoso, capaz de prejudicar a saúde de quaquer um. Esse vírus se chama StyloRk YT channel
 <br>
 <br>Pessoas se encontram em estado de ódio em relação a Stylo, e começam a caçar ele...
+
+Por favor, escute este aúdio para a história a seguir:
+
+<audio align="center" alt="tananananana" src="https://www.youtube.com/watch?v=BuYf0taXoNw" controls></audio>
