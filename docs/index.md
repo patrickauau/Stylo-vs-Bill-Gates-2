@@ -6,7 +6,7 @@
     <title>Stylo vs Bill Gates</title>
 </head>
 <body>
-    <h1>Stylo em busca de conhecimento para processar Bill Gates</h1>
+    <h1>Stylo em busca de conhecimento para destruir Bill Gates</h1>
     <p>Após um sério debate, defensores do bolsonaro ficam contra a microsoft, e apoiam Stylo, conhecido por seu nome artístico "StyloRK11" em sua jornada para quebrar a microsoft no pau.<br> Stylo muito puto, faz uso de sua nota 10 em interpretação de texto para argumentação contra Bill Gates, segundo Stylo, ele é capaz de criar parágrafos, mas então, ele fica na desvantagem pois Bill Gates diz "Tá e eu tenho dinheiro", Stylo fica puto e decide chamar a esquadrão de mini-bolsonaros para acontecer o quebra pau. <br>
         Enquanto bolsomitos seguram a batalha para Stylo. 
         <hr>Stylo reune poder para explicar como ele pode fazer vários e vários parágrafos sem precisar criar vários "&lt;p&gt;" e "&lt;/p&gt;" apenas utilizando o código "&lt;br&gt;"
