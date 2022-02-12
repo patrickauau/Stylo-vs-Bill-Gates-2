@@ -66,4 +66,8 @@ Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicion
 
 <video align="center" alt="deu ruim" src="https://cdn.discordapp.com/attachments/818311885367410698/941886121313464360/Eita_KKKJ_.__.__.__--------___meme__memebrasil__offensivememes__memesbrasil__shitposters__shitpost__memealeatorio__ironia__shitposting__shitpostbrasil__mashupmeme__shitpostbrasil__shitpostde.mp4" controls></video>
 
-    <br> <i>(Sou lindo, aceitas um copo de ???)</i>
+<hr>
+
+Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na obrigação de invadir alguma conexão direta com a tv para pedir ajuda, e então ele desenvolveu um vírus perigoso, capaz de prejudicar a saúde de quaquer um. Esse vírus se chama StyloRk YT channel
+<br>
+<br>Pessoas se encontram em estado de ódio em relação a Stylo, e começam a caçar ele...
