@@ -13,7 +13,7 @@
         <br> Stylo após muito esforço, conseguiu transformar seu nome em uma marca registrada e agora é conhecido por Stylo&reg; e agora ele está em busca de conseguir o &copy; e o &trade; para executar seu plano de processar a microsoft &#9728; 😀
 <br>
     <img align="center" alt="IMAGENS DE GUERRA" src="https://cdn.discordapp.com/attachments/940798829987516506/941404201915908116/unknown.png"/>
-    <br>(IMAGENS TIRADAS DURANTE A GUERRA)
+    <br><i>(IMAGENS TIRADAS DURANTE A GUERRA)</i>
     <br>
     <br> Durante a guerra, foi produzido um poderoso vídeo capaz de acabar com tudo e todos:
     <br>
@@ -36,3 +36,19 @@ E assim foi feito. Stylo transformou todos os seus aliados em galos de briga, ex
 <img align="center" alt="outro galo" height="560" width="400" src="https://cdn.discordapp.com/attachments/558392482447228928/941669810264227920/unknown.png">
 
 <p>Stylo tinha plena certeza de que seus galos eram capazes de destruir qualquer rato maconheiro ou qualquer trabalhador da microsoft, pois eles estavam armados e carregados até o talo.</p>
+
+<h3>Após a criação dos galos pistoleiros, Stylo voltou a seu plano principal de fazer lutas no clash royale para humilhar seu adversário e força-lo a procurar por Stylo ao redor do mundo, apenas para deita-lo no soco.</h3>
+<br> Mas stylo era horrível no clash royale, e mesmo que humilhasse seu inimigo, não era garantido que ele ficaria consumido de ódio. Então, Stylo correu em direção a robertinho hacker e disse: "coe meno hackeia saporra pra mim que eu nao sei o que faze".
+Ai robertinho hacker, com toda sua sabedoria nas artes de hackear, disse: "ta achando que eu so vidente porra? vo haquear o futuro caralho? fala que tu que de uma vez porra burrao"
+Stylo descontrolado por nao saber explicar o que quer, chuta a mesa com raiva. Seus sentidos de gorila despertaram em seguida, fazendo-o lembrar seu objetivo.
+
+Stylo diz: "ja sei porra me faz aquele caralho funciona porra nao lmbro o nome ata lembrei voice alguma merda acho que voice chat pro clash of royalers"
+Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicionar voice chat no clash royale, mas era necessário de algo para limitar a quantia de players com essa capacidade. robertinho hacker assume que será necessário algum tipo de documento para ter acesso ao voice chat, e então assim foi feito.
+
+Stylo com sua inteligência, pegou um cartão e documento do monopoly e mandou de scan para aprovação.
+
+<h2> Stylo volta para o prédio da Sony e fala ao chefe que está tudo pronto. Mas o chefe não acredita que o plano vai funcionar mesmo que o voice chat exista, então era necessário alguém de fama e que tivesse diversos haters.
+
+Stylo teve a brilhante ideia de colocar o ídolo CR7 para batalhar no clash royale, e então foi atrás dele. E para sua sorte, Bill Gates havia destruído todos os campos de futebol para construir uma quinta empresa da microsoft, sendo assim, seria mais fácil convencer CR7 a jogar clash royale. CR7 sem seu emprego, teve que vender rifa e pastel na venda da esquina sob o olhar sanguinário de Seu Madruga.
+
+<img align="center" alt="seu madruga" src="https://cdn.discordapp.com/attachments/779843392870940716/941878777145876491/Z.png"
