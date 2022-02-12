@@ -73,5 +73,5 @@ Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na ob
 <br>Pessoas se encontram em estado de ódio em relação a Stylo, e começam a caçar ele...
 
 Por favor, escute este aúdio para a história a seguir:
-
-<audio align="center" alt="tananananana" src="https://www.youtube.com/watch?v=BuYf0taXoNw" controls></audio>
+<br>
+<audio align="left" alt="tananananana" src="https://www.youtube.com/watch?v=BuYf0taXoNw" autoplay></audio>
