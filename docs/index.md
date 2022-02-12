@@ -74,4 +74,4 @@ Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na ob
 
 Por favor, escute este aúdio para a história a seguir:
 <br>
-<audio align="left" alt="tananananana" src="https://www.youtube.com/watch?v=BuYf0taXoNw" autoplay></audio>
+<audio align="left" alt="tananananana" src="https://www.youtube.com/watch?v=BuYf0taXoNw" autoplay loop></audio>
