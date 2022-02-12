@@ -47,7 +47,7 @@ Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicion
 <br>
 <br><i>Stylo com sua inteligência, pegou um cartão e documento do monopoly e mandou de scan para aprovação.</i>
 
-<h2> Stylo volta para o prédio da Sony e fala ao chefe que está tudo pronto. Mas o chefe não acredita que o plano vai funcionar mesmo que o voice chat exista, então era necessário alguém de fama e que tivesse diversos haters.</h2>
+<br><h2> Stylo volta para o prédio da Sony e fala ao chefe que está tudo pronto. Mas o chefe não acredita que o plano vai funcionar mesmo que o voice chat exista, então era necessário alguém de fama e que tivesse diversos haters.</h2>
 
 <br>Stylo teve a brilhante ideia de colocar o ídolo CR7 para batalhar no clash royale, e então foi atrás dele. E para sua sorte, Bill Gates havia destruído todos os campos de futebol para construir uma quinta empresa da microsoft, sendo assim, seria mais fácil convencer CR7 a jogar clash royale. CR7 sem seu emprego, teve que vender rifa e pastel na venda da esquina sob o olhar sanguinário de Seu Madruga.
 
