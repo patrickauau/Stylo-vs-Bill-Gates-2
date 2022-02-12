@@ -45,7 +45,7 @@ Ai robertinho hacker, com toda sua sabedoria nas artes de hackear, disse: "ta ac
 <br>Stylo diz: "ja sei porra me faz aquele caralho funciona porra nao lmbro o nome ata lembrei voice alguma merda acho que voice chat pro clash of royalers"
 Assim foi feito, robertinho hacker fez uso de todo seu conhecimento para adicionar voice chat no clash royale, mas era necessário de algo para limitar a quantia de players com essa capacidade. robertinho hacker assume que será necessário algum tipo de documento para ter acesso ao voice chat, e então assim foi feito.
 <br>
-<br><h3><i>Stylo com sua inteligência, pegou um cartão e documento do monopoly e mandou de scan para aprovação.</h3></i>
+<br><i>Stylo com sua inteligência, pegou um cartão e documento do monopoly e mandou de scan para aprovação.</i>
 
 <h2> Stylo volta para o prédio da Sony e fala ao chefe que está tudo pronto. Mas o chefe não acredita que o plano vai funcionar mesmo que o voice chat exista, então era necessário alguém de fama e que tivesse diversos haters.</h2>
 
