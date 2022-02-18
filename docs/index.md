@@ -78,4 +78,5 @@ A microsoft rewards gerou um movimento gigante, mas Bill Gates, esqueceu que ela
 <br>
 Bill Gates consegue sentir a derrota cada vez mais próxima, mas não baixaria a cabeça até que algo fosse decidido. Ele decide expor os times do Stylo no legends, gerando mais revolta, pois já estavam a caça de Stylo por conta de seu canal no youtube.
 <br>Times do Stylo em Dragon Ball Legends:
-<br> <img align="center" alt="amoguscagadostylolegendsteam" src="https://cdn.discordapp.com/emojis/917619402168467456.gif?size=160"
+<br> <img align="center" alt="amoguscagadostylolegendsteam" src="https://cdn.discordapp.com/emojis/917619402168467456.gif?size=160">
+<br> Stylo acredita que mesmo que Bill Gates jogue mais gente contra ele, isto seria bom para conseguir o poderoso vídeo. Entretanto, Stylo não contava com o fato de serem humanos caçando ele, logo, teriam armas e talvez armas até mais eficazes que as dos galos pistoleiros. Quando eles finalmente alcançam Stylo, ele não sabe o que fazer. Até que Seu Madruga alcança Stylo a tempo para salva-lo, e ele não está sozinho, Seu Madruga veio com reforços para ajudar na guerra.
