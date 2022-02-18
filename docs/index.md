@@ -82,7 +82,7 @@ Bill Gates consegue sentir a derrota cada vez mais próxima, mas não baixaria a
 <br> Stylo acredita que mesmo que Bill Gates jogue mais gente contra ele, isto seria bom para conseguir o poderoso vídeo. Entretanto, Stylo não contava com o fato de serem humanos caçando ele, logo, teriam armas e talvez armas até mais eficazes que as dos galos pistoleiros. Quando eles finalmente alcançam Stylo, ele não sabe o que fazer. Até que Seu Madruga alcança Stylo a tempo para salva-lo, e ele não está sozinho, Seu Madruga veio com reforços para ajudar na guerra.
 <img align="center" alt="ta fudido meu parcero" src="https://cdn.discordapp.com/attachments/818311885367410698/944207088329031710/unknown.png">
 <br> Então começa a batalha, Shrek começa mostrando sua força contra os brutamontes que escolheram armaduras ao invés de armas
-<img align="left" alt=" shrek brabo" src="https://cdn.discordapp.com/attachments/818311885367410698/944207714509275146/shrek-fight.gif">
+<br><img align="center" alt="shrek brabo" src="https://cdn.discordapp.com/attachments/818311885367410698/944207714509275146/shrek-fight.gif">
 <br> Shrek consegue segurar muitos inimigos, mas não é capaz de acabar com todos, então, Sikera JR entra em combate, chamando seus aliados para um ataque capaz de cancelar o cpf de quem cruzasse seu caminho.
     <img align="center" alt="sikera e top" src="https://cdn.discordapp.com/attachments/818311885367410698/944208408037433364/cpf-cpfcancelado_2.gif">
     <br> Infelizmente, todos aqueles que estavam em estado de ódio, não se incomodaram com o cancelamento do cpf, e partiram para cima de Sikera Jr. E infelizmente, acabam dando um fim em sua vida.
