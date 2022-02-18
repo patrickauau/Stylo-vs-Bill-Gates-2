@@ -80,19 +80,19 @@ Bill Gates consegue sentir a derrota cada vez mais próxima, mas não baixaria a
 <br>Times do Stylo em Dragon Ball Legends:
 <br> <img align="center" alt="amoguscagadostylolegendsteam" src="https://cdn.discordapp.com/emojis/917619402168467456.gif?size=160">
 <br> Stylo acredita que mesmo que Bill Gates jogue mais gente contra ele, isto seria bom para conseguir o poderoso vídeo. Entretanto, Stylo não contava com o fato de serem humanos caçando ele, logo, teriam armas e talvez armas até mais eficazes que as dos galos pistoleiros. Quando eles finalmente alcançam Stylo, ele não sabe o que fazer. Até que Seu Madruga alcança Stylo a tempo para salva-lo, e ele não está sozinho, Seu Madruga veio com reforços para ajudar na guerra.
-<img align="center" alt="ta fudido meu parcero" src="https://cdn.discordapp.com/attachments/818311885367410698/944207088329031710/unknown.png">
+<br><img align="center" alt="ta fudido meu parcero" src="https://cdn.discordapp.com/attachments/818311885367410698/944207088329031710/unknown.png">
 <br> Então começa a batalha, Shrek começa mostrando sua força contra os brutamontes que escolheram armaduras ao invés de armas
 <br><img align="center" alt="shrek brabo" src="https://cdn.discordapp.com/attachments/818311885367410698/944207714509275146/shrek-fight.gif">
 <br> Shrek consegue segurar muitos inimigos, mas não é capaz de acabar com todos, então, Sikera JR entra em combate, chamando seus aliados para um ataque capaz de cancelar o cpf de quem cruzasse seu caminho.
-    <img align="center" alt="sikera e top" src="https://cdn.discordapp.com/attachments/818311885367410698/944208408037433364/cpf-cpfcancelado_2.gif">
+    <br><img align="center" alt="sikera e top" src="https://cdn.discordapp.com/attachments/818311885367410698/944208408037433364/cpf-cpfcancelado_2.gif">
     <br> Infelizmente, todos aqueles que estavam em estado de ódio, não se incomodaram com o cancelamento do cpf, e partiram para cima de Sikera Jr. E infelizmente, acabam dando um fim em sua vida.
 Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usando toda sua raiva, liberando um gás radioativo. Aquela radiação que deu um fim em Chernobyl.
 <br><img align="center" alt="morte" src="https://cdn.discordapp.com/attachments/818311885367410698/944207414486515762/shrek-shrek2.gif">
      <br> Mas Shrek infelizmente falha, pois já havia se passado diversos anos após a explosão, então, pessoas já possuiam o conhecimento de como sobreviver em um local radioativo. Todos partiram para cima de shrek, até que o inesperado aconteceu.
-<img align="center" alt="e oque" src="https://cdn.discordapp.com/attachments/818311885367410698/944209564964900894/sikera-junior.gif" >
+<br><img align="center" alt="e oque" src="https://cdn.discordapp.com/attachments/818311885367410698/944209564964900894/sikera-junior.gif" >
      <br> Sikera Jr não estava usando nem metade de seu poder quando ele "Morreu", apenas deu esperança para seus inimigos, e as destruiu em seguida.
 <br>Shrek e Sikera estavam prestes a lutar contra uma multidão.
 <br>Shrek por sua vez luta com dois sem muito esforço.
-<video align="center" alt="shrek lutando" src="https://cdn.discordapp.com/attachments/818311885367410698/944209231853273108/AthleticWeirdItalianbrownbear-mobile.mp4" controls></video>
+<br><video align="center" alt="shrek lutando" src="https://cdn.discordapp.com/attachments/818311885367410698/944209231853273108/AthleticWeirdItalianbrownbear-mobile.mp4" controls></video>
 <br> Já Sikera, fez uso de seu majestoso e poderoso caderno, capaz de matar todos somente desenhando seus rostos.
 <img align="center" alt="sikera desenhando" src="https://cdn.discordapp.com/attachments/818311885367410698/944207818603495514/20211022-rd1-alerta-nacional-sikera-jr.png">
