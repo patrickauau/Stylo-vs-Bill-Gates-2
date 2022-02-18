@@ -73,3 +73,9 @@ Após uma derrota humilhante, stylo se encontra sem saída. Stylo se sente na ob
 <br>Pessoas se encontram em estado de ódio em relação a Stylo, e começam a caçar ele...
 <br>
 O plano de Stylo estava fluindo corretamente, mas Bill Gates percebeu o perigo que corria se deixasse o restante do povo que não se tornou um rato maconheiro chegasse até Stylo e fosse rendido por um dos galos armados, então ele teve a brilhante ideia desenvolver a microsoft rewards, onde você poderia participar de sorteios apenas fazendo missões simples e com vpn para burlar o sistema propositalmente, além de robux de graça, gerando um grande movimento.   
+<hr>
+A microsoft rewards gerou um movimento gigante, mas Bill Gates, esqueceu que ela é pública, logo todos poderiam usar. Dito isso, Stylo começou a usar a microsoft para pegar robux de graça diversas vezes, até que Bill Gates teve que fechar uma de suas empresas graças a microsoft rewards.
+<br>
+Bill Gates consegue sentir a derrota cada vez mais próxima, mas não baixaria a cabeça até que algo fosse decidido. Ele decide expor os times do Stylo no legends, gerando mais revolta, pois já estavam a caça de Stylo por conta de seu canal no youtube.
+<br>Times do Stylo em Dragon Ball Legends:
+<br> <img align="center" alt="amoguscagadostylolegendsteam" src="https://cdn.discordapp.com/emojis/917619402168467456.gif?size=160"
