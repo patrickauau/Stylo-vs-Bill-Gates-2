@@ -94,3 +94,5 @@ Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usa
 Shrek e Sikera estavam prestes a lutar contra uma multidão.
 Shrek por sua vez luta com dois sem muito esforço.
 <img align="center" alt="shrek lutando" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ3DJqqOMlZt-c8m98K6XF3mkjnTmeidy-KhOs4gk0MA4Dvk7qdCpAMELOmGA_Lc96mecI&usqp=CAU">
+<br> Já Sikera, fez uso de seu poderoso e majestoso caderno, capaz de matar todos somente desenhando seus rostos.
+<img align="center" alt="sikera desenhando" src="![image](https://user-images.githubusercontent.com/99296414/154681708-f2c6587b-15c7-421e-aab5-6c007c5d99db.png)">
