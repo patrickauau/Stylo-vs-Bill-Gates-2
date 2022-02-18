@@ -95,7 +95,7 @@ Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usa
 <br>Shrek por sua vez luta com dois sem muito esforço.
 <br><video align="center" alt="shrek lutando" src="https://cdn.discordapp.com/attachments/818311885367410698/944209231853273108/AthleticWeirdItalianbrownbear-mobile.mp4" controls></video>
 <br> Já Sikera, fez uso de seu majestoso e poderoso caderno, capaz de matar todos somente desenhando seus rostos.
-<br><img align="center" alt="sikera desenhando" src="https://cdn.discordapp.com/attachments/818311885367410698/944207818603495514/20211022-rd1-alerta-nacional-sikera-jr.png">
+<br><img align="center" alt="sikera desenhando" height="200" width="900" src="https://cdn.discordapp.com/attachments/818311885367410698/944207818603495514/20211022-rd1-alerta-nacional-sikera-jr.png">
 <br> Mas Shrek e Sikera ainda não eram poderosos o suficiente para lutar até acabar com todos, principalmente o Sikera, que não luta com os punhos, e sim com a inteligência. Sikera mesmo sendo um gênio ao usar o caderno, sua caneta BIC ficou sem tinta, sendo um grande perigo para ele e para o Shrek.
 <br> Shrek também não era capaz de lutar para sempre, então ambos se encontravam em perigo. Até que Sikera e Shrek foram derrubados e estavam na mira dos Ratos maconheiros e dos humanos que restaram. Até que o poderosíssimo Seu Madruga apareceu, ele apenas estava aproveitando o tempo para conseguir mais armas, mas ele estava extremamente puto após ver o que estavam prestes a fazer com seus aliados.
 <br><img align="center" alt="seu madruga" src="https://cdn.discordapp.com/attachments/818311885367410698/944212755941036093/seu-madruga-mito-seu-madruga.gif">
