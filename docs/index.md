@@ -87,7 +87,10 @@ Bill Gates consegue sentir a derrota cada vez mais próxima, mas não baixaria a
     <img align="center" alt="sikera e top" src="https://tenor.com/view/cpf-cpfcancelado-sikera-sikerajunior-gif-22144760">
     <br> Infelizmente, todos aqueles que estavam em estado de ódio, não se incomodaram com o cancelamento do cpf, e partiram para cima de Sikera Jr. E infelizmente, acabam dando um fim em sua vida.
 Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usando toda sua raiva, liberando um gás radioativo. Aquela radiação que deu um fim em Chernobyl.
-<img align="center" alt="morte" src="https://tenor.com/view/shrek-shrek2-fart-air-wind-gif-16407943"
+<img align="center" alt="morte" src="https://tenor.com/view/shrek-shrek2-fart-air-wind-gif-16407943">
      <br> Mas Shrek infelizmente falha, pois já havia se passado diversos anos após a explosão, então, pessoas já possuiam o conhecimento de como sobreviver em um local radioativo. Todos partiram para cima de shrek, até que o inesperado aconteceu.
-<img align="center" alt="e oque" src="https://tenor.com/view/sikera-junior-caixao-morte-acordando-gif-10773170" 
-     <br> Sikera Jr não estava usando nem metade de seu poder quando ele "Morreu", apenas deu esperança para seus inimigos, e as destruiu em seguida.
+<img align="center" alt="e oque" src="https://tenor.com/view/sikera-junior-caixao-morte-acordando-gif-10773170" >
+     <br> Sikera Jr não estava usando nem metade de seu poder quando ele "Morreu", apenas deu esperança para seus inimigos, e as destruiu em seguida l.
+Shrek e Sikera estavam prestes a lutar contra uma multidão.
+Shrek por sua vez luta com dois sem muito esforço.
+<img align="center" alt="shrek lutando" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ3DJqqOMlZt-c8m98K6XF3mkjnTmeidy-KhOs4gk0MA4Dvk7qdCpAMELOmGA_Lc96mecI&usqp=CAU">
