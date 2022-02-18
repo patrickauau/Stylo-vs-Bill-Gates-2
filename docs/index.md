@@ -100,6 +100,7 @@ Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usa
 <br>
 <br> Shrek também não era capaz de lutar para sempre, então ambos se encontravam em perigo. Até que Sikera e Shrek foram derrubados e estavam na mira dos Ratos maconheiros e dos humanos que restaram. Até que o poderosíssimo Seu Madruga apareceu, ele apenas estava aproveitando o tempo para conseguir mais armas, mas ele estava extremamente puto após ver o que estavam prestes a fazer com seus aliados.
 <br><img align="center" alt="seu madruga" src="https://cdn.discordapp.com/attachments/818311885367410698/944212755941036093/seu-madruga-mito-seu-madruga.gif">
+<br>
 <br>Seu Madruga então, pega sua arma futurista em mãos e começa a atirar.
 <br><img align="center" alt="seu madruga pistolero" src="https://cdn.discordapp.com/attachments/818311885367410698/944213291490742412/seumadruga-chaves.gif">
     <br><i>Seu Madruga é tão poderoso que nem precisa usar suas formas para garantir uma luta</i>
