@@ -95,4 +95,4 @@ Shrek nada contente com o que acabou de acontecer, partiu para cima de todos usa
 <br>Shrek por sua vez luta com dois sem muito esforço.
 <br><video align="center" alt="shrek lutando" src="https://cdn.discordapp.com/attachments/818311885367410698/944209231853273108/AthleticWeirdItalianbrownbear-mobile.mp4" controls></video>
 <br> Já Sikera, fez uso de seu majestoso e poderoso caderno, capaz de matar todos somente desenhando seus rostos.
-<img align="center" alt="sikera desenhando" src="https://cdn.discordapp.com/attachments/818311885367410698/944207818603495514/20211022-rd1-alerta-nacional-sikera-jr.png">
+<br><img align="center" alt="sikera desenhando" src="https://cdn.discordapp.com/attachments/818311885367410698/944207818603495514/20211022-rd1-alerta-nacional-sikera-jr.png">
